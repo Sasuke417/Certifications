@@ -1,2 +1,2 @@
-# LinkedIn Learning Certifications
+# Certifications
 ## of Shivender
